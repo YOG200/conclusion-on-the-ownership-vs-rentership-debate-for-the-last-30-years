@@ -1,0 +1,1 @@
+# conclusion-on-the-ownership-vs-rentership-debate-for-the-last-30-years
